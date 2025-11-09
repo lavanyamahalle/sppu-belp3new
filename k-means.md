@@ -1,5 +1,4 @@
-Perfect 👏 Let’s go step by step — simple and clear so you **understand exactly what’s happening** and can **explain it confidently in your practical**.
-
+https://youtu.be/ivFJZPYl2L0?si=T6F5v1k1N-6uQpvl
 ---
 
 ## 🧩 PROBLEM STATEMENT

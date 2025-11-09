@@ -1,7 +1,6 @@
-Perfect 👍
-Let’s go step-by-step again — clear, simple, and enough to **understand + explain in viva + pass the practical** ✅
+https://youtu.be/RxfiIPYbZnM?si=6rIyt1TdmocBN2UR  upto-11.14 mins
 
----
+
 
 ## 🧩 PROBLEM STATEMENT
 
